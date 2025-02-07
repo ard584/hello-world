@@ -4,6 +4,6 @@ BIG FATTY
 
 Why nothing working :(
 
-im gonna kms
+This program didn't help very much but thats fine
 
 please please please
